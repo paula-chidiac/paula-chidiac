@@ -4,7 +4,6 @@ Prazer! Sou jornalista de formação, pós graduada em Marketing Digital/BI e ap
 
 **🌍 Localização:** Porto Alegre, Rio Grande do Sul, Brasil  
 **🌱 Atualmente explorando:** Análise de dados  
-**💼 Open To Work:** Sim
 
 ## Contato
 
