@@ -9,4 +9,3 @@ Prazer! Sou jornalista de formação, pós graduada em Marketing Digital/BI e ap
 
 - 📧 Email: [paulaachidiac@gmail.com](mailto:paulaachidiac@gmail.com)
 - 💬 LinkedIn: [Paula Chidiac](https://www.linkedin.com/in/paula-chidiac-schuster/)
-- 🐦 Twitter: [@paula_chidiac](https://twitter.com/paula_chidiac)
